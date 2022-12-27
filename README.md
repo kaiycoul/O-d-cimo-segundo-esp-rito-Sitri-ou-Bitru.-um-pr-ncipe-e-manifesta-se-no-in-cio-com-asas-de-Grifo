@@ -1,0 +1,2 @@
+# O-d-cimo-segundo-esp-rito-Sitri-ou-Bitru.-um-pr-ncipe-e-manifesta-se-no-in-cio-com-asas-de-Grifo
+O décimo segundo espírito é Sitri ou Bitru. É um príncipe e manifesta-se no início com asas de Grifo e cabeça de leopardo, mas após o comando do mestre e do Exorcismo ele toma forma humana, até mesmo agradável. Ele inflama homens e mulheres em amor; e os obriga a mostrarem-se despidos se assim for desejado. Ele comanda 60 legiões de espíritos.
